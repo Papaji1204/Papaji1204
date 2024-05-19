@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...coding that nobody does
 - 🌱 I’m currently learning ...advanced IT
 - 💞️ I’m looking to collaborate on ...(NOTHIMG)
-- 📫 How to reach me ... near palace of asmodeous, hell
+- 📫 How to reach me ... near your house, globe
 - 
 - 😄 Pronouns: ...DADDY
 - ⚡ Fun fact: ...IF YOU"re still here it means you have nothing to do
